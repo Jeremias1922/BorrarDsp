@@ -1,2 +1,0 @@
-Luciano Gelvez
-Jeremias Budai 
